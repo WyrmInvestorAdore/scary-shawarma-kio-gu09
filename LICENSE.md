@@ -1,4 +1,4 @@
-#  
+#  ultimate ultimate mining tycoon Script is the best ultimate mining tycoon Script, featuring undetectable and teleport. Safe and powerful for all your
 
 
 
